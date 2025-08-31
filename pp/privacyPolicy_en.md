@@ -59,4 +59,4 @@ For inquiries regarding this Privacy Policy, please contact us at:
 
 ---
 
-**Last Updated: June 1, 2025**
+**Last Updated: Sept 1, 2025**
